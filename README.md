@@ -1,5 +1,5 @@
 - I’m @xCassliux
-- I’m currently learning the IS. 
+- I’m currently learning IS. 
 - 📫 How to reach me washwahb@gmail.com
 
 <!---
